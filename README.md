@@ -5,3 +5,5 @@ Karol III.
 
 Alžbeta II.
 
+Juraj VI.
+
