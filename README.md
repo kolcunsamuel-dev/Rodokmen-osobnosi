@@ -7,3 +7,5 @@ Alžbeta II.
 
 Juraj VI.
 
+Mary of Teck
+
